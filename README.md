@@ -53,4 +53,8 @@ Some links for resources on Mexican / LA Culture
 - *Los Señores del Narco* - Anabel Hernandez
 - *La verdadera noche de Iguala* - Anabel Hernandez
 - *Instrucciones para vivir en Mexico* - Jorge Ibargüengoitia
-- *[Instantes - Poema](https://www.poemas-del-alma.com/instantes.htm)*
+- *[Instantes - Poema](https://www.poemas-del-alma.com/instantes.htm)*  
+
+<br>
+<br>
+<img src="./assets/qr-code.png" alt="QR Code" width="300"/>
