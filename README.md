@@ -14,6 +14,7 @@ Some links for resources on Mexican / LA Culture
 
 ## Movies / Shows
 - [Coco - Trailer](https://www.youtube.com/watch?v=awzWdtCezDo)
+- [Si yo fuera diputado](https://youtu.be/rUbtM0WblDs)
 - [El Estudiante - Trailer](https://www.youtube.com/watch?v=nbEVSbps8Ng)
 - [Tambien la lluvia - Trailer](https://www.youtube.com/watch?v=hTSz5vjkmx8)
 - [Tambien la lluvia - full version](https://www.youtube.com/watch?v=hTSz5vjkmx8)
@@ -22,6 +23,7 @@ Some links for resources on Mexican / LA Culture
 - [Blackthorn - Trailer](https://www.youtube.com/watch?v=T-f34bfHVnk)
 - [Narcos Mexico - Trailer (Graphic)](https://www.youtube.com/watch?v=1nannle9DaE)
 - [Sicario - Trailer (Graphic)](https://www.youtube.com/watch?v=G8tlEcnrGnU)
+- [Santo contra las momias de guanajuato](https://youtu.be/iT72xkTcT9c)
 
 ## Documentaries / News
 - [Zapatista Uprising](https://www.youtube.com/watch?v=3HAw8vqczJw)
@@ -32,6 +34,8 @@ Some links for resources on Mexican / LA Culture
 - [Mexico Geopolitics](https://www.youtube.com/watch?v=XJ55YdzWT2g)
 
 ## Comedy / Parody
+- [Salvando el soldado Perez - Trailer](https://youtu.be/9JkJ2HCgiOg)
+- [Salvando el soldado Perez - full version](https://www.youtube.com/watch?v=26TYOza3rqc)
 - [La Dictadura Perfecta - trailer (graphic)](https://www.youtube.com/watch?v=ZriH9uEDgsI)
 - [La Dictadura Perfecta - full version (graphic)](https://www.youtube.com/watch?v=XOlmF_2J5Jw&t=1197s)
 - [Franco Escamilla Stand Up](https://www.youtube.com/watch?v=eqZwoLYEoHY)
