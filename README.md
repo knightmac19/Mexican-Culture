@@ -43,6 +43,7 @@ Some links for resources on Mexican / LA Culture
 - [La Ley de Herodes - full version (graphic)](https://www.youtube.com/watch?v=O7iR7qJx00Y)
 - [Aguascalientes no es un estado](https://fb.watch/aE2iTW3I5c/)
 - [Si los estados de mexico fueran personas (explicit)](https://youtu.be/hBhS3Pqqaho)
+- [Joe T Hodo](https://youtu.be/LgVzPRHcMuQ)
 
 ## Websites
 - [El Deforma](https://eldeforma.com/) -- it's like the mexican Onion News Network
